@@ -1,4 +1,4 @@
-
+deadlock esp secure Scripts - auto-hero magic resistance and enemy hero weakness indicator is the best deadlock esp scripts, featuring auto-hero magic resistance and enemy hero
 
 
 
